@@ -6,5 +6,6 @@ ZB MED Bonn
 ## Mehr Infos
 Weitere Informationen folgen
 ## Personen
+Alle die wir einladen sind auch herzlich eingeladen.
 
 
